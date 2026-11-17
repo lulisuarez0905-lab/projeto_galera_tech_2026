@@ -1,0 +1,1 @@
+# projeto_galera_tech_2026
